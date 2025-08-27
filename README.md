@@ -1,2 +1,2 @@
-# Graphic-design-
+# Graphic-design
 My graphic designs using the Canva tool.
